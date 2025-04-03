@@ -56,9 +56,13 @@ Las proyecciones indican que, de mantenerse estas tendencias, países como Corea
 # Referencia
 
 [https://www.scmp.com/news/asia/east-asia/article/3295745/first-time-decade-asias-lowest-birth-rate-rise
+
 https://www.eleconomista.es/economia/noticias/12280234/05/23/la-explicacion-al-infructuoso-chorreo-de-millones-en-asia-para-incentivar-la-natalidad.html
+
 https://www.france24.com/es/programas/as%C3%AD-es-asia/20240412-la-preocupante-baja-tasa-de-natalidad-en-corea-del-sur
+
 https://www.macrotrends.net/global-metrics/countries/NAC/asia/birth-rate
+
 https://countrymeters.info/es/Asia#google_vignette](https://www.scmp.com/news/asia/east-asia/article/3295745/first-time-decade-asias-lowest-birth-rate-rise
 
 https://www.eleconomista.es/economia/noticias/12280234/05/23/la-explicacion-al-infructuoso-chorreo-de-millones-en-asia-para-incentivar-la-natalidad.html
@@ -75,7 +79,7 @@ https://www.infobae.com/america/mundo/2024/09/06/japon-registro-una-baja-histori
 
 https://www.bcn.cl/observatorio/asiapacifico/noticias/causas-sociales-ministerio-baja-natalidad-corea#:~:text=%E2%80%9CTener%20hijos%20es%20una%20decisi%C3%B3n,ministerio%20independiente%20sobre%20este%20problema.
 
-https://as.com/actualidad/sociedad/el-pais-que-puede-disminuir-su-poblacion-en-un-96-en-solo-75-anos-n/?utm_source=chatgpt.com)
+https://as.com/actualidad/sociedad/el-pais-que-puede-disminuir-su-poblacion-en-un-96-en-solo-75-anos-n/?utm_source
 
 
 
